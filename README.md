@@ -1,4 +1,5 @@
-### Hi there 🤘.
+### Oba!
+🤘
 
 Meu nome é Ian Lenguer.
 
@@ -12,4 +13,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 00001087067236sp@al.educacao.sp.gov.br
 
- ![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fordemparanormal.fandom.com%2Ff%2Fp%2F4400000000000067342&psig=AOvVaw3FrhtmIWKaMChD2ydc-Nqs&ust=1715104827565000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCPjP1cLN-YUDFQAAAAAdAAAAABAQ)
+![Anfitri%3Fo](https://github.com/ComediaDivina/ComediaDivina/assets/168581971/e0f9f9e9-3e4d-4cb2-b054-c7bb93076ff5)
